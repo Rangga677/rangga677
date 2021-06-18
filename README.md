@@ -1,1 +1,1 @@
-# rangga677.github.io/rangga677/
+# Rangga677.github.io
